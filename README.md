@@ -1,1 +1,1 @@
-https://jasaswini-mohanty.github.io/Akshit-game/
+https://jasaswini-mohanty.github.io/Akshit-game-new/
